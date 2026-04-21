@@ -10,7 +10,7 @@ my favorite artists/bands r weezer, megurine luka, they might be giants, go:eski
 
 little to no dni as i block freely, but darkshippers please dont int with me, follow me, or sign my ata ^-^
 
-extra facts n slop: i have audhd, osdd-1b, + more, im prussian/slavic, i speak french, im a satanist, and i plan to study architecture! (also i made gabe into. luka for some reason)
+extra facts n slop: i have audhd, osdd-1b, + more, im prussian/slavic, i speak french, im a satanist, and i plan to study architecture!
 
 i also do... a ton of art style studies. my current one is on the mid-2000s penny arcade style :-) if u wanna see some of my art i post about that + more check my tumblr
 
