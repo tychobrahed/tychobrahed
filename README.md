@@ -12,8 +12,6 @@ little to no dni as i block freely, but darkshippers please dont int with me, fo
 
 extra facts n slop: i have audhd, osdd-1b, + more, im prussian/slavic, i speak french, im a satanist, and i plan to study architecture!
 
-i also do... a ton of art style studies. my current one is on the mid-2000s penny arcade style :-) if u wanna see some of my art i post about that + more check my tumblr
-
 i follow a lot of people but im not petty enough to make a whole other github for it,,,, guys just be normal and follow everyone not everything has 2 be aesthetic
 
 ok GO MY STAMP AND BLINKIE HOARDDDDD FUCKK (ps. all penny arcade related blinkies/stamps are made by @adriansblinkiehordingadventure on tumblr! go follow them!)
